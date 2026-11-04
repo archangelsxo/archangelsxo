@@ -5,3 +5,8 @@
 <p align="center"> what's up youtube
 
 Archangel Gabriel from Sinner Maker... I love him
+
+<details>
+  <summary> Fandoms </summary>
+  6Teen, Andy's Apple Farm, Great God Grove, Hamilton Musical, No Means Nothing, Sherlock Holmes, Shameless, Smile For Me, Sinner Maker, Spooky Month (Fandom IWEC),
+</details>
