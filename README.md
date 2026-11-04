@@ -8,5 +8,5 @@ Archangel Gabriel from Sinner Maker... I love him
 
 <details>
   <summary> Fandoms </summary>
-  6Teen, Andy's Apple Farm, Great God Grove, Hamilton Musical, No Means Nothing, Sherlock Holmes, Shameless, Smile For Me, Sinner Maker, Spooky Month (Fandom IWEC),
+  6Teen, Andy's Apple Farm, Great God Grove, Happy Tree Friends, Hamilton Musical, Mandela Catalogue, Night at The Museum, No Means Nothing, Sherlock Holmes, Shameless, Smile For Me, Sinner Maker, Spooky Month (Fandom IWEC), The Walten Files,
 </details>
