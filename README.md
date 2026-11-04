@@ -5,8 +5,3 @@
 <p align="center"> what's up youtube
 
 Archangel Gabriel from Sinner Maker... I love him
-
-<details>
-  <summary> Fandoms. (1-0, A-Z) Find yours I guess </summary>
-  6Teen, Andy's Apple Farm, Block Tales, Backrooms, Circus in The Sky myth, Dandy's World, Faith: The Unholy Trinity, Great God Grove, Happy Tree Friends, Hamilton Musical, Mouthwashing (Fandom IWEC), Mandela Catalogue, Minesweeper, Night at The Museum, No Means Nothing, Regretevator, Sherlock Holmes, Shameless, Smile For Me, Sinner Maker, Spooky Month (Fandom IWEC), That's Not My Neighbor, The Walten Files, The Amazing Digital Circus, Whalefall(?) (adding more)
-</details>
