@@ -10,5 +10,5 @@ Archangel Gabriel from Sinner Maker... I love him
 
 <details>
   <summary> !! important !! </summary>
-  I STRUGGLE TO READ SOCIAL CUES. I use tone tags for a reason, encouraged to use them whenever we interact, or I WILL take something, like a joke, too literally.
+  I STRUGGLE TO READ SOCIAL CUES. I use tone tags for a reason. You're encouraged to use them whenever we interact, or I WILL take something, like a joke, too literally.
 </details>
